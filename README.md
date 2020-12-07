@@ -1,4 +1,4 @@
-# Atlancig Gaming Tech
+# Atlantic Gaming Tech
 
 ## Obbiettivi per Atlantic Gaming Tech
 
